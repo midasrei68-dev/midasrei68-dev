@@ -31,13 +31,5 @@
 <img width="1599" height="900" alt="Spawn" src="https://github.com/user-attachments/assets/745ed48a-0460-48ab-90a4-4b7681171dc8" />
 
 
-###
 
-<picture data-importer="pacman">
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/midasrei68-dev/midasrei68-dev/pacman-output/galaga-contribution-graph-dark.svg?game=galaga">
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/midasrei68-dev/midasrei68-dev/pacman-output/galaga-contribution-graph.svg?game=galaga">
-  <img alt="pacman contribution graph" src="https://raw.githubusercontent.com/midasrei68-dev/midasrei68-dev/pacman-output/galaga-contribution-graph.svg?game=galaga">
-</picture>
-
-###
 
