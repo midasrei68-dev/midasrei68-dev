@@ -1,8 +1,32 @@
 <img width="1600" height="650" alt="WhatsApp Image 2026-10-21 at 6 59 29 PM" src="https://github.com/user-attachments/assets/3757a6a8-07f7-4b42-a6ba-751aaf38f25e" />
 
-
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p data-importer="text" align="center"> » 𝑶𝒑𝒂 𝒓𝒂𝒑𝒂𝒛𝒊𝒂𝒅𝒂! 𝑴𝒆𝒖 𝒏𝒐𝒎𝒆 𝒆́ 𝑮𝒂𝒃𝒓𝒊𝒆𝒍 𝑮𝒐𝒏𝒄̧𝒂𝒍𝒗𝒆𝒔, 𝒎𝒂𝒔 𝒑𝒐𝒅𝒆𝒎 𝒎𝒆 𝒄𝒉𝒂𝒎𝒂𝒓 𝒅𝒆 𝑮𝒂𝒃𝒓𝒊𝒆𝒍 𝒐𝒖 𝑴𝒊𝒅𝒂𝒔 𝒎𝒆𝒔𝒎𝒐, 𝒒𝒖𝒆 𝒆́ 𝒎𝒆𝒖 𝒂𝒑𝒆𝒍𝒊𝒅𝒐 𝒑𝒓𝒂 𝒕𝒖𝒅𝒐 𝒃𝒂𝒔𝒊𝒄𝒂𝒎𝒆𝒏𝒕𝒆. 𝑬𝒖 𝒔𝒐𝒖 𝒖𝒎 𝒑𝒓𝒐𝒈𝒓𝒂𝒎𝒂𝒅𝒐𝒓 𝒏𝒂̃𝒐-𝒐𝒇𝒊𝒄𝒊𝒂𝒍, 𝒐𝒖 𝒔𝒆𝒋𝒂 𝒆𝒖 𝒂𝒊𝒏𝒅𝒂 𝒆𝒔𝒕𝒐𝒖 𝒂𝒑𝒓𝒆𝒏𝒅𝒆𝒏𝒅𝒐 𝒖𝒎 𝒑𝒐𝒖𝒄𝒐 𝒅𝒆𝒔𝒔𝒆 𝒎𝒖𝒏𝒅𝒐 𝒅𝒂 𝒕𝒆𝒄𝒏𝒐𝒍𝒐𝒈𝒊𝒂 𝒆 𝒊𝒏𝒇𝒐𝒓𝒎𝒂𝒄̧𝒂̃𝒐. </p>
 
 <p data-importer="text" align="center"> » 𝑨𝒕𝒖𝒂𝒍𝒎𝒆𝒏𝒕𝒆 𝒆𝒖 𝒄𝒖𝒓𝒔𝒐 𝑨𝒏𝒂́𝒍𝒊𝒔𝒆 𝒆 𝑫𝒆𝒔𝒆𝒏𝒗𝒐𝒍𝒗𝒊𝒎𝒆𝒏𝒕𝒐 𝒅𝒆 𝑺𝒊𝒔𝒕𝒆𝒎𝒂𝒔 (𝑨𝑫𝑺) 𝒏𝒂 𝑼𝒏𝒊𝒗𝒆𝒓𝒔𝒊𝒅𝒂𝒅𝒆 𝑩𝒓𝒂𝒛 𝑪𝒖𝒃𝒂𝒔, 𝒄𝒖𝒓𝒕𝒐 𝒃𝒂𝒔𝒕𝒂𝒏𝒕𝒆 𝒎𝒆𝒙𝒆𝒓 𝒄𝒐𝒎 𝒆𝒔𝒔𝒂 𝒑𝒂𝒓𝒕𝒆 𝒅𝒆 𝒑𝒚𝒕𝒉𝒐𝒏, 𝑯𝑻𝑴𝑳, 𝑪𝑺𝑺, 𝒆́ 𝒖𝒎𝒂 𝒂́𝒓𝒆𝒂 𝒒𝒖𝒆 𝒆𝒖 𝒔𝒆𝒊 𝒃𝒂𝒔𝒕𝒂𝒏𝒕𝒆 𝒆 𝒈𝒐𝒔𝒕𝒐 𝒅𝒆 𝒆𝒔𝒕𝒖𝒅𝒂𝒓 𝒔𝒐𝒃𝒓𝒆 𝒕𝒂𝒎𝒃𝒆́𝒎. 𝑬𝒖 𝒑𝒆𝒏𝒔𝒐 𝒃𝒂𝒔𝒕𝒂𝒏𝒕𝒆 𝒆𝒎 𝒕𝒓𝒂𝒃𝒂𝒍𝒉𝒂𝒓 𝒎𝒖𝒊𝒕𝒐 𝒄𝒐𝒎 𝑻𝒆́𝒄𝒏𝒊𝒄𝒐 𝒅𝒆 𝒎𝒂𝒏𝒖𝒏𝒕𝒆𝒏𝒄̧𝒂̃𝒐 𝒏𝒂 𝒑𝒂𝒓𝒕𝒆 𝒅𝒆 𝒆𝒍𝒆𝒕𝒓𝒐̂𝒏𝒊𝒄𝒐𝒔, 𝒆𝒔𝒑𝒆𝒄𝒊𝒇𝒊𝒄𝒂𝒎𝒆𝒏𝒕𝒆: 𝑪𝒐𝒏𝒔𝒐𝒍𝒆𝒔, 𝑪𝒐𝒎𝒑𝒖𝒕𝒂𝒅𝒐𝒓𝒆𝒔, 𝑰𝒎𝒑𝒓𝒆𝒔𝒔𝒐𝒓𝒂𝒔, 𝑺𝒎𝒂𝒓𝒕𝒑𝒉𝒐𝒏𝒆𝒔 𝒆 𝒆𝒕𝒄.  </p>
 
 <p data-importer="text" align="center"> » 𝑺𝒆 𝒒𝒖𝒊𝒔𝒆𝒓𝒆𝒎 𝒔𝒂𝒃𝒆𝒓 𝒖𝒎 𝒑𝒐𝒖𝒄𝒐 𝒎𝒂𝒊𝒔 𝒅𝒂 𝒎𝒊𝒏𝒉𝒂 𝒕𝒓𝒂𝒋𝒆𝒕𝒐́𝒓𝒊𝒂 𝒆𝒔𝒕𝒖𝒅𝒂𝒏𝒕𝒊𝒍 𝒆 𝒑𝒓𝒐𝒇𝒊𝒔𝒔𝒊𝒐𝒏𝒂𝒍 𝒂𝒕𝒆́ 𝒂𝒈𝒐𝒓𝒂, 𝒇𝒊𝒒𝒖𝒆 𝒂 𝒗𝒐𝒏𝒕𝒂𝒅𝒆 𝒑𝒂𝒓𝒂 𝒄𝒐𝒏𝒉𝒆𝒄𝒆𝒓 𝒎𝒆𝒖𝒔 𝒑𝒓𝒐𝒋𝒆𝒕𝒐𝒔 𝒆 𝒂𝒕𝒆́ 𝒔𝒂𝒃𝒆𝒓 𝒖𝒎 𝒑𝒐𝒖𝒄𝒐 𝒎𝒂𝒊𝒔 𝒅𝒂 𝒎𝒊𝒏𝒉𝒂 𝒄𝒂𝒓𝒓𝒆𝒊𝒓𝒂 𝒂𝒕𝒆́ 𝒂𝒈𝒐𝒓𝒂. 𝑬 𝒔𝒆 𝒑𝒖𝒅𝒆𝒓𝒆𝒎, 𝒆𝒖 𝒆 𝒂𝒍𝒈𝒖𝒏𝒔 𝒂𝒎𝒊𝒈𝒐𝒔 𝒅𝒂 𝒇𝒂𝒄𝒖𝒍𝒅𝒂𝒅𝒆 𝒆𝒔𝒕𝒂𝒎𝒐𝒔 𝒄𝒐𝒎 𝒖𝒎 𝒑𝒓𝒐𝒋𝒆𝒕𝒐 𝒊𝒏𝒅𝒆𝒑𝒆𝒏𝒅𝒆𝒏𝒕𝒆 𝒅𝒆 𝒋𝒖𝒏𝒕𝒂𝒓 𝒂 𝒆𝒅𝒖𝒄𝒂𝒄̧𝒂̃𝒐 𝒄𝒐𝒎 𝒂 𝒕𝒆𝒄𝒏𝒐𝒍𝒐𝒈𝒊𝒂 𝒆 𝒄𝒐𝒏𝒔𝒆𝒈𝒖𝒊𝒓 𝒂𝒑𝒓𝒐𝒙𝒊𝒎𝒂𝒓 𝒆𝒔𝒔𝒂𝒔 𝒅𝒖𝒂𝒔 𝒄𝒐𝒊𝒔𝒂𝒔 𝒑𝒂𝒓𝒂 𝒒𝒖𝒆𝒎 𝒎𝒂𝒊𝒔 𝒑𝒓𝒆𝒄𝒊𝒔𝒂 𝒂𝒕𝒖𝒂𝒍𝒎𝒆𝒏𝒕𝒆, 𝒔𝒆 𝒑𝒖𝒅𝒆𝒓𝒆𝒎 𝒅𝒂𝒓 𝒖𝒎𝒂 𝒇𝒐𝒓𝒄̧𝒂 𝒆 𝒂𝒕𝒆́ 𝒎𝒆𝒔𝒎𝒐 𝒄𝒐𝒏𝒉𝒆𝒄𝒆𝒓 𝒏𝒐𝒔𝒔𝒐 𝒑𝒓𝒐𝒋𝒆𝒕𝒐, 𝒐 𝒍𝒊𝒏𝒌 𝒗𝒂𝒊 𝒆𝒔𝒕𝒂𝒓 𝒏𝒂 𝒎𝒊𝒏𝒉𝒂 𝒃𝒊𝒐, 𝒆𝒏𝒇𝒊𝒎.. 𝒔𝒆 𝒄𝒖𝒊𝒅𝒆𝒎! </p>
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+
+<div data-importer="techs" align="center">
+  <img src="https://skillicons.dev/icons?i=html" height="49" alt="html5 logo"  />
+  <img width="20" />
+  <img src="https://skillicons.dev/icons?i=css" height="49" alt="css logo"  />
+  <img width="20" />
+  <img src="https://skillicons.dev/icons?i=py" height="49" alt="python logo"  />
+  <img width="20" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/postgresql/postgresql-original.svg" height="49" alt="postgresql logo"  />
+  <img width="20" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/javascript/javascript-original.svg" height="49" alt="javascript logo"  />
+</div>
+
+###
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+════════════════════════════════════════════════════════════════════════════════════
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=800000&center=true&width=435&lines=I'am+Spawn+%E2%9F%A2)](https://git.io/typing-svg)
+
+<img width="1599" height="900" alt="Spawn" src="https://github.com/user-attachments/assets/745ed48a-0460-48ab-90a4-4b7681171dc8" />
+
