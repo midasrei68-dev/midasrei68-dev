@@ -1,9 +1,6 @@
-<div data-importer="border">
-  <img style="100%" src="https://capsule-render.vercel.app/api?type=waving&height=100&section=header&reversal=false&fontSize=70&fontColor=FFFFFF&fontAlign=50&fontAlignY=50&stroke=-&descSize=20&descAlign=50&descAlignY=50&color=640b0b"  />
-</div>
+<img width="1500" height="899" alt="Spawn name" src="https://github.com/user-attachments/assets/0f97e1cd-bb11-4e3b-b4b9-1fdee8722695" />
 
 ###
-<img width="1600" height="650" alt="WhatsApp Image 2026-10-21 at 6 59 29 PM" src="https://github.com/user-attachments/assets/3757a6a8-07f7-4b42-a6ba-751aaf38f25e" />
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p data-importer="text" align="center"> » 𝑶𝒑𝒂 𝒓𝒂𝒑𝒂𝒛𝒊𝒂𝒅𝒂! 𝑴𝒆𝒖 𝒏𝒐𝒎𝒆 𝒆́ 𝑮𝒂𝒃𝒓𝒊𝒆𝒍 𝑮𝒐𝒏𝒄̧𝒂𝒍𝒗𝒆𝒔, 𝒎𝒂𝒔 𝒑𝒐𝒅𝒆𝒎 𝒎𝒆 𝒄𝒉𝒂𝒎𝒂𝒓 𝒅𝒆 𝑮𝒂𝒃𝒓𝒊𝒆𝒍 𝒐𝒖 𝑴𝒊𝒅𝒂𝒔 𝒎𝒆𝒔𝒎𝒐, 𝒒𝒖𝒆 𝒆́ 𝒎𝒆𝒖 𝒂𝒑𝒆𝒍𝒊𝒅𝒐 𝒑𝒓𝒂 𝒕𝒖𝒅𝒐 𝒃𝒂𝒔𝒊𝒄𝒂𝒎𝒆𝒏𝒕𝒆. 𝑬𝒖 𝒔𝒐𝒖 𝒖𝒎 𝒑𝒓𝒐𝒈𝒓𝒂𝒎𝒂𝒅𝒐𝒓 𝒏𝒂̃𝒐-𝒐𝒇𝒊𝒄𝒊𝒂𝒍, 𝒐𝒖 𝒔𝒆𝒋𝒂 𝒆𝒖 𝒂𝒊𝒏𝒅𝒂 𝒆𝒔𝒕𝒐𝒖 𝒂𝒑𝒓𝒆𝒏𝒅𝒆𝒏𝒅𝒐 𝒖𝒎 𝒑𝒐𝒖𝒄𝒐 𝒅𝒆𝒔𝒔𝒆 𝒎𝒖𝒏𝒅𝒐 𝒅𝒂 𝒕𝒆𝒄𝒏𝒐𝒍𝒐𝒈𝒊𝒂 𝒆 𝒊𝒏𝒇𝒐𝒓𝒎𝒂𝒄̧𝒂̃𝒐. </p>
@@ -14,7 +11,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
 
 <div data-importer="techs" align="center">
   <img src="https://skillicons.dev/icons?i=html" height="49" alt="html5 logo"  />
@@ -29,15 +26,15 @@
 </div>
 
 ###
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
-════════════════════════════════════════════════════════════════════════════════════
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=800000&center=true&width=435&lines=I'am+Spawn+%E2%9F%A2)](https://git.io/typing-svg)
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
 
-<img width="1599" height="900" alt="Spawn" src="https://github.com/user-attachments/assets/745ed48a-0460-48ab-90a4-4b7681171dc8" />
 
-###
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=11&pause=1000&color=800000&center=true&repeat=false&width=435&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=11&pause=1000&color=800000&center=true&repeat=false&width=435&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg) 
+<img width="1586" height="992" alt="Spawngun" src="https://github.com/user-attachments/assets/16e42e42-5aa1-46c9-9f16-2d6478b1e029" />
 
+
+
+
+₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪
 
 <picture data-importer="pacman">
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/midasrei68-dev/midasrei68-dev/pacman-output/galaga-contribution-graph-dark.svg?game=galaga">
@@ -48,7 +45,7 @@
   <img style="100%" src="https://capsule-render.vercel.app/api?type=waving&height=100&section=footer&reversal=false&fontSize=70&fontColor=FFFFFF&fontAlign=50&fontAlignY=50&stroke=-&descSize=20&descAlign=50&descAlignY=50&textBg=false&color=640b0b"  />
 </div>
 
-
+₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪
 
 ###
 
