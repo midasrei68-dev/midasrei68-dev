@@ -1,3 +1,5 @@
+┌──────────────────────────────────────────────────────────────────────────────────┐
+
 <img width="1500" height="899" alt="Spawn name" src="https://github.com/user-attachments/assets/0f97e1cd-bb11-4e3b-b4b9-1fdee8722695" />
 
 ###
@@ -46,6 +48,8 @@
 </div>
 
 ₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=17&pause=1000&color=800000&center=true&multiline=true&width=435&lines=%3A+%CC%97%CC%80%E2%9E%9B+GennisCode+%E0%B4%A6%E0%B5%8D%E0%B4%A6%E0%B4%BF+%28+%E1%B5%94+%E1%97%9C+%E1%B5%94+%29;Tecnologia+%C3%A9+melhor+quando+%C3%A9+compartilhada!)](https://git.io/typing-svg)
 
 ###
 
